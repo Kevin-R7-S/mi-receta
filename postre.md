@@ -17,3 +17,8 @@
 5. Refrigera durante unas 4 horas, hasta que cuaje.
 6. Desmolda 
 7. Sirve fria.
+
+## Presentación
+
+- Servir en un recipiente y decorar
+con un poco de canela.
